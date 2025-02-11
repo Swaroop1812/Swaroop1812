@@ -1,4 +1,4 @@
-## Hi👋, I'm Swaroopa A P 
+## Hi👋, I'm SWAROOPA A P 
 
 <!--
 **Swaroop1812/Swaroop1812** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
